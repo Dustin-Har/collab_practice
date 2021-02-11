@@ -1,4 +1,3 @@
 please read me Q.Q
 
-
-Well its broken🤷🏻‍♂️
+I came here to RUIN YOUR SHIT 🤷🏻‍♂️
